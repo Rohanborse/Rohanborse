@@ -8,7 +8,7 @@ Heyy 🙋‍♂️ I'm  Rohan
 👨🏻‍💻 About Me
 🌈 Post Graduate Diploma in Big Data Analytics (2023-23) from CDAC ACTS Bangalore.
 
-🌞 Bachelor Degree in Mechanical Engineering from SSVPS B.S.Deore Collage of Engneering,Dhule.
+🌞 Bachelor Degree in Mechanical Engineering from SSVPS B.S.Deore Collage of Engneering,Dhule, Maharashtra.
 
 ⚽️ Hobbies: Riding Bike , Playing videogames.
 
